@@ -1,3 +1,5 @@
+[**7Slots'a Kayıt Olarak Aviator Oynamak İçin Tıklayın**](https://cutt.ly/veEroPes)
+
 Aviator: Göklerin Efendisi
 Havacılık, insanlığın sınırlarını zorlayan bir serüven olarak her zaman heyecan verici bir konu olmuştur. İlk uçuş denemelerinden günümüze kadar, pilotlar yani "aviator"lar gökleri fethetti. Peki, bu cesur havacıların dünyası neler barındırıyor?
 <br>
